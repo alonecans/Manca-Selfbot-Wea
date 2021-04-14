@@ -1,1 +1,0 @@
-# Manca-Selfbot-Wea
